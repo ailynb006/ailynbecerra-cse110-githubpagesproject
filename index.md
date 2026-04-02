@@ -37,9 +37,9 @@ In my opinion here are the best type of dog breeds:(since sprinkles is one of a 
 ## What to do if you encounter Sprinkles
 If you ever encounter Sprinkles here is you should do to make the best impression:
 
-- [ ]let her sniff you
-- [ ]give her some fruit
-- [ ]be kind
+- [ ] let her sniff you
+- [ ] give her some fruit
+- [ ] be kind
 
 ## Technical stuff
 I used the following git commands
