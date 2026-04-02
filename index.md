@@ -13,6 +13,7 @@ Like all other Yorkshire Terriers<sub>TM</sub> Sprinkles has ***hair*** not ***f
 Of course _I'm_ not the only one who thinks this
 Here's what others have to say about why Sprinkles is the best:
 > "Because she is so adorable, she is like a living plushie, she loves to cuddle and makes you feel loved!" - My dad
+
 ## Pictures of Sprinkles
 Here are some new and old pictures of Sprinkles in her different eras:
 ![picture of sprinkles driving](385FDFA7-6502-4232-A43B-473114BD317F_1_105_c.jpeg)
